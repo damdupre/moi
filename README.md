@@ -11,5 +11,5 @@ je suis d’une nature curieuse avec soif d’apprendre et une grande capacité 
 
 ### EXPERIENCE PROFESSIONNELLE
 
-<Renault Manosque automobiles – Conseiller service après vente>
+1. Renault Manosque automobiles – Conseiller service après vente
 
