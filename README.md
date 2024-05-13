@@ -4,7 +4,8 @@
 **contact**  
 Tel :06-59-90-47-34  
 mail :dupeo04@gmail.com  
-![linkedin-logo-linkedin-symbol-linkedin-icon-free-free-vector](https://github.com/damdupre/mon-cv/assets/169659054/0a913b96-d22e-45b4-b4e5-c1d5e1edb8b4)[damien DUPRÉ](www.linkedin.com/in/damien-dupré-3a944616b)
+![linkedin-logo-linkedin-symbol-linkedin-icon-free-free-vector](https://github.com/damdupre/mon-cv/assets/169659054/b3a20311-5c82-4663-ac3f-96f2b78ca1e2)
+[damien DUPRÉ](www.linkedin.com/in/damien-dupré-3a944616b)
 
 ---
 
@@ -17,7 +18,7 @@ je suis d’une nature curieuse avec soif d’apprendre et une grande capacité 
 ## EXPERIENCE PROFESSIONNELLE
 
 -  Juin 2003 à ce jour  
-- **Renault Manosque automobiles** – Conseiller service après vente
+- **Renault Manosque automobiles** – _Conseiller service après vente_
   
    *	Accueil client prise en charge et restitution véhicule
    *	Devis et facturation
@@ -27,7 +28,7 @@ je suis d’une nature curieuse avec soif d’apprendre et une grande capacité 
      
 
 
-- **Norauto Manosque**  - Monteur électricien
+- **Norauto Manosque**  - _Monteur électricien_
      - avril 1999 juin 2003
 
 ----
