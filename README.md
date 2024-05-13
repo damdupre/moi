@@ -2,8 +2,9 @@
 ![Image1](https://github.com/damdupre/mon-cv/assets/169659054/94f31057-fa54-44e1-bd55-fac2e0d455e8)   
 
 **contact**  
-Tel :06-59-90-47-34
-mail :dupeo04@gmail.com
+Tel :06-59-90-47-34  
+mail :dupeo04@gmail.com  
+![linkedin-logo-linkedin-symbol-linkedin-icon-free-free-vector](https://github.com/damdupre/mon-cv/assets/169659054/0a913b96-d22e-45b4-b4e5-c1d5e1edb8b4)[damien DUPRÉ](www.linkedin.com/in/damien-dupré-3a944616b)
 
 ---
 
