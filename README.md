@@ -23,4 +23,13 @@ je suis d’une nature curieuse avec soif d’apprendre et une grande capacité 
 ### FORMATION 
 
 
+  -BAC PRO mécanique véhicule industriel
+  -BEP CAP mécanique véhicule industriel
 
+  ---
+
+### CENTRES D'INTERETS
+
+. bénévola pour des association sportives
+
+. dj
