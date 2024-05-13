@@ -11,5 +11,16 @@ je suis d’une nature curieuse avec soif d’apprendre et une grande capacité 
 
 ### EXPERIENCE PROFESSIONNELLE
 
-1. Renault Manosque automobiles – Conseiller service après vente
+- Renault Manosque automobiles – Conseiller service après vente
+    -  Juin 2003 à ce jour 
+
+
+- Norauto Manosque  - Monteur électricien
+     - avril 1999 juin 2003
+
+----
+
+### FORMATION 
+
+
 
